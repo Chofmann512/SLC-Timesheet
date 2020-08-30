@@ -1,1 +1,1 @@
-Please email Gymchris123@gmail.com regarding and support related questions!
+Please email Gymchris123@gmail.com regarding any support related questions!
